@@ -1,4 +1,4 @@
 
-information:
+### *Annabelle*
 
 If you saw the 2013 hit, you remember the creepy doll that wouldn’t go away. Ghostbusters Lorraine and Ed Warren kept Annabelle in a locked case, recognizing the true evil held within. How did Annabelle go from a relatively harmless but totally creepy doll to a tool of the devil? “Annabelle” tries to tell that story, using the Manson Murders and “Rosemary’s Baby” as a backdrop. Some may be tempted to write off “Annabelle” on concept alone, in that it’s something of a cash grab, like a straight-to-video sequel designed to strike while a hit predecessor's iron is still hot. Still, I would argue that “Annabelle” has the core of a good film within it. It's about how changing times in the ‘70s, when otherwise safe neighborhood dwellers started locking their doors and apartment denizens began to suspect their neighbors; the iconography of youth became sinister. You can sense shreds of this idea in “Annabelle,” but the film doesn't develop them. 
